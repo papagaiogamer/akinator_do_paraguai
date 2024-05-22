@@ -1,1 +1,0 @@
-# akinator_do_paraguai
